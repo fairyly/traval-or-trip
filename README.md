@@ -49,3 +49,7 @@ DAY2
 
 慈光阁坐大巴车回到汤口，直接坐车去屯溪老街
 ```
+
+
+![huangshan1](https://fairyly.github.io/traval-or-trip/huangshan1.jpg)
+![huangshan2](https://fairyly.github.io/traval-or-trip/huangshan2.jpg)
