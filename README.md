@@ -52,4 +52,4 @@ DAY2
 
 
 ![huangshan1](https://fairyly.github.io/traval-or-trip/huangshan1.jpg)
-![huangshan2](https://fairyly.github.io/traval-or-trip/huangshan2.jpg)
+![huangshan2](https://fairyly.github.io/traval-or-trip/huangshan2.jpeg)
